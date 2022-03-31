@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @reply91
+- 👋 Hi, I’m rosyid
 - 👀 I’m interested in money
 - 🌱 I’m currently learning how to code
 - 📫 reach me on instagram @reply91
